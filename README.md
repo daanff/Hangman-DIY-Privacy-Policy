@@ -1,0 +1,1 @@
+# Hangman-DIY-Privacy-Policy
